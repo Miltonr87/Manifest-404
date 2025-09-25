@@ -2,11 +2,11 @@
 
 Punk has always been about tearing down walls. Not just the ones built by governments or corporations, but the invisible ones that keep us apart — firewalls of fear, silence, and disconnection.
 
-**Invisible Noise** opens the record with the chaos of loneliness, that feeling of screaming into static while nobody answers back. It’s the sound of being lost in the crowd, swallowed by the city’s hum.
+**Invisible Noise** opens the record with the chaos of loneliness, that feeling of screaming into static while nobody answers back. It’s the sound of being lost in the crowd, swallowed by the metropolitan city’s.
 
-From there, **Code Revolution** sparks the rebellion. The riffs hit sharper, the lyrics turn outward — it’s not just about being trapped inside your head anymore, it’s about smashing the systems that profit from your silence.
+From there, **Code Revolution** sparks the rebellion. The riffs hit sharper, the lyrics turn outward — it’s not just about being trapped inside your head anymore, it’s about smashing the systems that profit from your silence armed with code, a computer, and a cup of coffee.
 
-Then comes **Pixelated Love**, where irony cuts deep. A love song filtered through screens and glitches, it turns the digital world into a broken mirror. Affection reduced to pixels, intimacy trapped behind firewalls — modern loneliness dressed up with distorted chords.
+Then comes **Pixelated Love**, where irony cuts deep. A love song filtered through screens and glitches, it turns the digital world into a broken mirror. Affection reduced to pixels, intimacy trapped behind firewalls (modern loneliness dressed up with distorted chords).
 
 The album darkens with **Echoes of Sovereignty**, a heavy anthem of fractured freedom. It’s the sound of identity stripped bare, asking if sovereignty even exists in a world ruled by algorithms from the U.S., surveillance, and walls that never stop echoing.
 
