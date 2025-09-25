@@ -1,4 +1,4 @@
-# 📀 Liner Notes – Manifest 404 (Break the Firewall)
+# 📀 Liner Notes: Manifest 404 (Break the Firewall)
 
 Punk has always been about tearing down walls. Not just the ones built by governments or corporations, but the invisible ones that keep us apart — firewalls of fear, silence, and disconnection.
 
@@ -17,4 +17,10 @@ This isn’t just five songs. It’s a journey:
 
 _Break the Firewall_ is more than an album title. It’s the call to smash every boundary — digital, political, emotional — until nothing stands between us and each other.
 
-— _Milton Rodrigues, Front-End Developer & Punk Rock Producer_
+## 🎵 AI Music
+
+These works were created with the assistance of AI technology (AIMusic), and it was made just for fun!
+
+## 🎸 Creator
+
+— _Milton Rodrigues, Software Engineer & Punk Rock AI Producer_
