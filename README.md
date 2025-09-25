@@ -6,7 +6,7 @@ Punk has always been about tearing down walls. Not just the ones built by govern
 
 From there, **Code Revolution** sparks the rebellion. The riffs hit sharper, the lyrics turn outward — it’s not just about being trapped inside your head anymore, it’s about smashing the systems that profit from your silence armed with code, a computer, and a cup of coffee.
 
-Then comes **Pixelated Love**, where irony cuts deep. A love song filtered through screens and glitches, it turns the digital world into a broken mirror. Affection reduced to pixels, intimacy trapped behind firewalls (modern loneliness dressed up with distorted chords).
+Then comes **Pixelated Love**, where irony cuts deep. A love song filtered through screens and glitches, it turns the digital world into a broken mirror. Affection reduced to pixels, intimacy trapped behind firewalls.
 
 The album darkens with **Echoes of Sovereignty**, a heavy anthem of fractured freedom. It’s the sound of identity stripped bare, asking if sovereignty even exists in a world ruled by the USA — masked as Superman — flies above the world with its algorithms, surveillance, and walls that never stop echoing.
 
