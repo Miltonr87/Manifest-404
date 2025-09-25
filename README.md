@@ -1,4 +1,4 @@
-# 📀 Liner Notes: Manifest 404 (Break the Firewall)
+# 📀 Manifest 404 (Break the Firewall)
 
 Punk has always been about tearing down walls. Not just the ones built by governments or corporations, but the invisible ones that keep us apart — firewalls of fear, silence, and disconnection.
 
