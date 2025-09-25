@@ -19,7 +19,7 @@ _Break the Firewall_ is more than an album title. It’s the call to smash every
 
 ## 🎵 AI Music
 
-These works were created with the assistance of AI technology (AIMusic), and it was made just for fun!
+These works were created with the assistance of AI technology (AIMusic), and it was made just for fun (this is not intended to be a real band)!
 
 ## 🎸 Creator
 
