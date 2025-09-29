@@ -2,7 +2,7 @@
 
 Punk has always been about tearing down walls. Not just the ones built by governments or corporations, but the invisible ones that keep us apart — firewalls of fear, silence, and disconnection.
 
-_Break the Firewall_ is more than an album title. It’s the call to smash every boundary — digital, political, emotional — until nothing stands between us and each other.
+_Break the Firewall_ is more than an album title. It’s the call to smash every boundary — digital, political, emotional.
 
 ## 🎵 AI Music
 
