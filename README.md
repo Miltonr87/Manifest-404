@@ -1,13 +1,13 @@
-# 📀 Manifest 404 — Break the Firewall
+# 📀 Manifest 404
 
 **Manifest 404** is an experimental digital punk rock project that merges  
 the raw intensity of hardcore riffs with the aesthetics of cyberpunk culture.  
-Composed and produced with the assistance of AI, this album explores themes of  
-control, rebellion, irony, addiction, and liberation in a hyper-connected world.
+Composed and produced with the assistance of AI, its songs explore themes of
+**control, rebellion, irony, addiction, faith, liberation** in a hyper-connected world.
 
 ---
 
-## 🎶 Tracklist
+## 🎶 Tracklist (Break the Firewall)
 
 1. **Algorithmic Tyranny**  
    A heavy opener that confronts the invisible power of algorithms shaping modern life.  
@@ -31,19 +31,9 @@ control, rebellion, irony, addiction, and liberation in a hyper-connected world.
 
 ---
 
-## 🔥 Concept
-
-_Break the Firewall_ is made with this flow in mind:
-
-**Control → Revolt → Irony → Addiction → Liberation**
-
-The project reimagines punk rock for the 21st century.
-
----
-
 ## 🛠️ Technology & Process
 
-This album was created using **AI-assisted music generation** free, combined with  
+This albuns were created using **AI-assisted music generation** combined with  
 manual prompts and few sound design. The result is a hybrid of machine-driven ideas  
 and human direction.
 
